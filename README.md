@@ -9,9 +9,9 @@ Rude people  or toxic to one of my friends whispering threats or whatsoever.
 
 Breaking boundaries .
 
-Weird people that are (pdfs,dark shippers, whatsoever weirdos out there.)
+Weird people that are (pdfs,dark shippers) 
 
-basically making me uncomfortable
+Basically making me uncomfortable
 
 Stalking
 
@@ -20,3 +20,7 @@ Accusing.
 Harsh words not in a sarcastic way .
 
 Not taking accountability of the mistake they create.
+
+18 above Interact with carefulness ok?..
+
+Thank you.
